@@ -11,4 +11,4 @@ Copy link and open it on chrome browser just install on google play store
 
 Thats All!
 
-Buy Me Coffee; [buymecoffee.com/fermata](buymecoffee.com/fermata)
+Buy Me Coffee; [buymecoffee.com/fermata](https://buymecoffee.com/fermata)
